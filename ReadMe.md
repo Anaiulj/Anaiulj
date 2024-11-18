@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩‍💻 Sou estudante de Engenharia de Software<br>🎲 Entusiasta da área de dados<br>🌱 Almejo uma oportunidade de estágio
+👩‍💻 Sou estudante de Engenharia de Software<br>🌱 Almejo uma oportunidade de estágio
 
 
 ## 🌐 Socials:
